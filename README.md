@@ -1,4 +1,4 @@
-# Blogs
+best construction company in GTA
 Great Choice Construction, the best construction company in GTA, offers top-notch basement side entrances, renovations, and custom projects. Quality you can trust!
 Great Choice Construction: Your Trusted Partner for Quality Construction in the GTA
 Welcome to Great Choice Construction, your go-to construction company in the Greater Toronto Area (GTA). With over 20 years of experience, we take pride in delivering top-tier construction and renovation services tailored to your needs. Whether you're planning a basement side entrance, home renovation, or custom construction project, our team is here to bring your vision to life.
